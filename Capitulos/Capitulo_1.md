@@ -1,4 +1,4 @@
-#Nacimiento
+# Nacimiento
 Era la noche del 13 de diciembre de 1990 San José, Costa Rica 9.9368° N, 84.0695° W. Sección de natalidad de un hospital de la capital. El llanto de 1 niño recién nacidos ensordecía el profundo eco los pasillos vacíos y el sonido de luces entre apagadas y encendidas daba una lúgubre aura de esoterismo a la escena. Dicha escena fue interrumpida de súbito por un hombre con bata blanca que corría por el pasillo de neonatales apresurado portaba una carpeta en su mano que dejaba ver unas hojas blancas dentro de ella. Pasó junto a un hombre mayor que trapeaba el piso, lo volvió a ver y dejo apresuradamente, Don Paco tenemos que hablar de esta carta, indicó apresuradamente levantando la carpeta sin dejar trotar, pero en este momento hay una emergencia, te buscó en el cambio de turno. 
 El doctor al entrar empieza a examinar a los niños.
 Niño 1: Pelo oscuro y piel acaramelada pero sus ojos era como ver dos zafiros amarillos, al ver los ojos parecía que la fortuna siempre le sonreirá a un chico de tales dotes y no se equivocaría dicha predicción ya que esa misma noche topo con su primera buena noticia. 
